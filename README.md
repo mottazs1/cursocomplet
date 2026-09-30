@@ -1,4 +1,4 @@
 # cursocomplet
 
 
-vai tomano dos meno quentao fi
+deu foi merda a porra
